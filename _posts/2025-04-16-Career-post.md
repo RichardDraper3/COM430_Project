@@ -1,4 +1,7 @@
-Title: Career Path
+---
+layout: post
+title: "Career Path"
+date: 2025-04-16
 ---
 Joining an ROTC program sets you on a path to commission into the United States Army upon graduation. 
 You are able to get your degree ang go straight into the Army as an officer.
