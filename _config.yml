@@ -2,5 +2,5 @@ theme: minima
 Title: Charlie Company
 Author: Richard Draper
 
-paginate: 5 # amount of posts to show
+paginate: 6 # amount of posts to show
 paginate_path: /page:num/
