@@ -6,9 +6,9 @@ date: 2025-04-16
 As an ROTC cadet at Saint Leo University you are given a few different options for scholarships.
 
 First, if you are coming out of high school looking to go to college for free, you are in the right place. Not only will the Army pay for your tuition, 
-but Saint Leo will give you a matching grant that will pay for your rooma and board.
+but Saint Leo will give you a matching grant that will pay for your room and board.
 Some cadets are awarded the full four year scholarship, while nearly all the other cadets are given a 3 year scholarship. 
-Along with this scholarship is a $420 stipend from the army, so you are being paid to come to Saint Leo!
+Along with this scholarship is a $420 stipend every month from the army and $600 book allowance every semester, so you are being paid to come to Saint Leo!
 
 Second, if you are in the guard or reserve you are eligible for an SMP scholarship which has all the same benefits while remaining in your unit. 
 
