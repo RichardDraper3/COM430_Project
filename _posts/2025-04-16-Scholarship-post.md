@@ -15,7 +15,6 @@ Second, if you are in the guard or reserve you are eligible for an SMP scholarsh
 There are different benefits and obligations depending on whether you are in the Guard or Reserve.
 National Guard: [SMP information](https://nationalguard.com/simultaneous-membership-program)
 Reserve: [SMP information](https://recruiting.army.mil/News/Article/3063650/simultaneous-membership-program/)
-
 ---
 
 Third, Green to gold, if you are already active duty and would like to obtain your degree in person, remain active, 
