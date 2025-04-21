@@ -19,6 +19,20 @@ MAJ You is supported by his loving wife Delta You, daughter Elizabeth and son Et
 ---
 <img src="https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434" width="300" alt="Major Daniel You">
 
+---
 
 
-SFC Sturm bio + pic:
+About SFC Sturm:
+SFC Alex Sturm was born in Stoughton, Massachusetts, on 07 June 1989. He joined the United States Army (U.S. Army) in April 2009. He graduated from Infantry One Station Unit Training (OSUT) in July 2009.
+
+During his career, SFC Sturm has served as Team Leader, Squad Leader, Bradley Section Leader, Weapons Squad Leader, Platoon Sergeant, Light Infantry Company First Sergeant, and currently as an ROTC Instructor. He has participated in multiple Combat Training Center rotations at the National Training Center (NTC) and the Joint Pacific Multinational Readiness Center (JPMRC). His first deployment was to Afghanistan in support of Operation Enduring Freedom from January 2011 to January 2012. His second deployment to Qatar was from April 2015 to November 2015 in support of Operation Spartan Shield. He participated in multiple Pacific Pathways missions to various locations to include the Philippines, Fiji, and New Zealand. 
+
+SFC Sturm has been assigned to D Company, 2nd Battalion, 2nd Infantry Regiment at Fort Knox, Kentucky; A & B Company, 1st Battalion, 8th Infantry Regiment, Fort Carson, Colorado; The Non-Commissioned Officer Academy, Fort Drum, New York; The United Nations Command Security Battalion – Joint Security Area, Panmunjom, South Korea; B & C Company, 2nd Battalion, 27th Infantry Regiment, Schofield Barracks, Hawaii. Currently, SFC Sturm Serves as an ROTC Instructor at both Saint Leo University and the University of South Florida. 
+
+SFC Sturm is a graduate of the following military education courses: Infantry OSUT, Basic Leader Course, Advanced Leaders Course, Senior Leader Course, Master Leader Course, Sexual Harassment Assault Response and Prevention (SHARP) course, Master Resilience Training (MRT) Course, Jungle Operations Training Course, Air Assault Course, and Combatives Level 1 & 2.  
+
+SFC Sturm’s awards include the Meritorious Service Medal, Joint Service Accommodation Medal, Army Accommodation Medal (4), Army Achievement Medal (6), Master Combat Infantry Badge, Combat Infantry Badge, Expert Infantry Badge, Air Assault Badge, Senior Army Instructor badge, Basic Army Instructor Badge, Norwegian Foot March Badge and German Armed Forces Proficiency Badge. His Unit awards include the Meritorious Unit Citation and the Army Superior Unit Award.
+
+SFC Sturm has three children: Jordyn-Lynn (14), Olivia (12), and Thomas (5). 
+
+---
