@@ -15,3 +15,7 @@ depending on years of service. This does not include additional allowances for h
 subsistence (Basic Allowance for Subsistence - BAS), and other potential benefits, which can significantly increase total compensation.
 
 [Learn more about Army careers](https://www.googleadservices.com/pagead/aclk?sa=L&ai=DChcSEwiA9qyor-mMAxUfploFHRoPNeUYABAAGgJ2dQ&co=1&ase=2&gclid=Cj0KCQjw2ZfABhDBARIsAHFTxGwLq8SlUw_x-5mH9RKRk53V8RlsQk2E0Nw4fXoSrtM1zdcxfkkZ4_kaArQ7EALw_wcB&ohost=www.google.com&cid=CAESV-D2dH03U9ycjTwknS5VoJ6TFc5_7LTnKO7o-h3ZAegdFf5l8Fs2p9SNl2ElYg5m1ZhwPewFETS0xTO_zmddNMRqg1lFKNkmbg9Rep-po85Sea68BkVqZQ&sig=AOD64_3G4FrAqwInIiudn93hFG2Z1k1Ilg&q&nis=4&adurl&ved=2ahUKEwiEnKeor-mMAxUgSjABHRcrH-UQ0Qx6BAgREAE)
+
+<img src="https://github.com/user-attachments/assets/a5754451-3cf9-4b23-9c7b-515aaae6b4a2" width="300" alt="">
+
+<img src="https://github.com/user-attachments/assets/1bb860b1-61db-4885-8bf8-e23d1704c677" width="300" alt="">
