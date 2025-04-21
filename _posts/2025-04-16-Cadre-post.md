@@ -17,7 +17,8 @@ MAJ You’s awards and decorations include the Bronze Star Medal, Purple Heart M
 MAJ You is supported by his loving wife Delta You, daughter Elizabeth and son Ethan. His family enjoys traveling, fishing, going to the beach, hiking, and food.
 
 ---
-![MAJ you](https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434)
+<img src="https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434" width="300" alt="Major Daniel You">
+
 
 
 SFC Sturm bio + pic:
