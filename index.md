@@ -12,3 +12,5 @@ We are Charlie Company! We are located on the campus of Saint Leo University, an
 Through USF Army ROTC, students engage in rigorous leadership training, military science coursework, and physical fitness
 development. The program emphasizes critical thinking, problem-solving, and decision-making in high-pressure situations, fostering
 well-rounded leaders who are ready to take on the responsibilities of military service.
+
+[More info about the Program](https://www.goarmy.com/careers-and-jobs/find-your-path/army-officers/rotc)

@@ -15,3 +15,5 @@ Second, if you are in the guard or reserve you are eligible for an SMP scholarsh
 Third, Green to gold, if you are already active duty and would like to obtain your degree in person, remain active, 
 with the promise of commissioning after college ROTC is the route for you.
 These cadets also recieve the same benefits on top of their active duty pay.
+
+[More info about Scholarships](https://www.googleadservices.com/pagead/aclk?sa=L&ai=DChcSEwj2pN73rOmMAxXSn1oFHdGnEA8YABAAGgJ2dQ&co=1&ase=2&gclid=Cj0KCQjw2ZfABhDBARIsAHFTxGybUaZ90ZmAYinC9_w8kBfGkelJ5t3-VnaUG2gTj9R32fvFRYeOewIaAj0nEALw_wcB&ohost=www.google.com&cid=CAESV-D2AJ3QScIFEmKDs8MPkNu7155EsAZEBIQTewa1jPIeMZYhDVwU4oR8f7oclXCTQembg8NQaqm1q2KBp1RNBv-GTgPVj_eUsby-koW7TIzKpcWU5v9rWQ&sig=AOD64_1P8JtTgo4nnUGKazgGQoUJakch2w&q&nis=4&adurl&ved=2ahUKEwiimNn3rOmMAxXCRTABHdN3Im4Q0Qx6BAgKEAE)
