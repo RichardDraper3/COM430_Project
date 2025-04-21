@@ -1,7 +1,8 @@
 ---
 title: Saint Leo Army ROTC
 ---
-![SLU-logo](https://github.com/user-attachments/assets/7953e3b7-7a61-4523-8408-a88f57f7176c)
+<img src="https://github.com/user-attachments/assets/7953e3b7-7a61-4523-8408-a88f57f7176c" width="300" alt="Description">
+
 ![ROTC logo](https://github.com/user-attachments/assets/48c3290b-b606-41af-9cda-911741b4503f)
 The Army ROTC program at Saint Leo University, in partnership with the University of South Florida (USF) Army ROTC, provides
 students with the opportunity to develop leadership skills, tactical proficiency, and a commitment to service while pursuing a college
