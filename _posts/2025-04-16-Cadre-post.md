@@ -19,6 +19,7 @@ MAJ You is supported by his loving wife Delta You, daughter Elizabeth and son Et
 ---
 <img src="https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434" width="300" alt="Major Daniel You">
 
+---
 
 
 About SFC Sturm:
@@ -35,4 +36,6 @@ SFC Sturm’s awards include the Meritorious Service Medal, Joint Service Accomm
 SFC Sturm has three children: Jordyn-Lynn (14), Olivia (12), and Thomas (5). 
 
 ---
-<img src="https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434" width="300" alt="Major Daniel You">
+<img src="https://github.com/user-attachments/assets/b44d4a68-7916-40a9-a037-1f91935f1796" width="300" alt="SFC Sturm">
+
+---
