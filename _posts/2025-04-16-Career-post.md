@@ -14,6 +14,8 @@ Upon commissioning, a Second Lieutenant (O-1) in the U.S. Army earns a base sala
 depending on years of service. This does not include additional allowances for housing (Basic Allowance for Housing - BAH),
 subsistence (Basic Allowance for Subsistence - BAS), and other potential benefits, which can significantly increase total compensation.
 
+During your MS4 year you will be awarded your branch and component based on how many OML points you accrew based on your performance throughout your years as a cadet.
+
 [Learn more about Army careers](https://www.googleadservices.com/pagead/aclk?sa=L&ai=DChcSEwiA9qyor-mMAxUfploFHRoPNeUYABAAGgJ2dQ&co=1&ase=2&gclid=Cj0KCQjw2ZfABhDBARIsAHFTxGwLq8SlUw_x-5mH9RKRk53V8RlsQk2E0Nw4fXoSrtM1zdcxfkkZ4_kaArQ7EALw_wcB&ohost=www.google.com&cid=CAESV-D2dH03U9ycjTwknS5VoJ6TFc5_7LTnKO7o-h3ZAegdFf5l8Fs2p9SNl2ElYg5m1ZhwPewFETS0xTO_zmddNMRqg1lFKNkmbg9Rep-po85Sea68BkVqZQ&sig=AOD64_3G4FrAqwInIiudn93hFG2Z1k1Ilg&q&nis=4&adurl&ved=2ahUKEwiEnKeor-mMAxUgSjABHRcrH-UQ0Qx6BAgREAE)
 
 <img src="https://github.com/user-attachments/assets/a5754451-3cf9-4b23-9c7b-515aaae6b4a2" width="300" alt="">
