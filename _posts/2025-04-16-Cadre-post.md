@@ -17,7 +17,7 @@ MAJ You’s awards and decorations include the Bronze Star Medal, Purple Heart M
 MAJ You is supported by his loving wife Delta You, daughter Elizabeth and son Ethan. His family enjoys traveling, fishing, going to the beach, hiking, and food.
 
 <a href="mailto:daniel.you@saintleo.edu.com">Contact Major You</a>
----
+
 <img src="https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434" width="300" alt="Major Daniel You">
 
 ---
@@ -37,4 +37,6 @@ SFC Sturm’s awards include the Meritorious Service Medal, Joint Service Accomm
 SFC Sturm has three children: Jordyn-Lynn (14), Olivia (12), and Thomas (5). 
 
 <a href="mailto:alex.sturm@saintleo.edu.com">Contact SFC Sturm</a>
+
+<img src="https://github.com/user-attachments/assets/d7c6257d-06c9-45e0-824f-b8f88ee00dbc" width="300" alt="SFC Alex Sturm">
 ---
