@@ -16,7 +16,7 @@ MAJ You’s military education includes Engineer Basic Officer Leaders Course, E
 MAJ You’s awards and decorations include the Bronze Star Medal, Purple Heart Medal, Meritorious Service Medal, Army Commendation Medal with 1 OLC, Army Achievement Medal, Army Reserve Components Achievement Medal, National Defense Service Medal, Afghanistan Campaign Medal, Global War on Terrorism Medal, Armed Forces Reserve Medal with “M” Device, NATO Medal, Army Service Ribbon, and Overseas Service Ribbon.
 MAJ You is supported by his loving wife Delta You, daughter Elizabeth and son Ethan. His family enjoys traveling, fishing, going to the beach, hiking, and food.
 
-<a href="mailto:daniel.you@saintleo.edu.com">Contact for Major You</a>
+<a href="mailto:daniel.you@saintleo.edu.com">Contact Major You</a>
 ---
 <img src="https://github.com/user-attachments/assets/41e0f358-d7cf-4c21-97ed-17229a13f434" width="300" alt="Major Daniel You">
 
