@@ -18,3 +18,4 @@ well-rounded leaders who are ready to take on the responsibilities of military s
 [More info about the Program](https://www.goarmy.com/careers-and-jobs/find-your-path/army-officers/rotc)
 ---
 <a href="mailto:daniel.you@saintleo.edu.com">Contact for Major You</a>
+<a href="mailto:alex.sturm@saintleo.edu.com">Contact for SFC Sturm</a>
