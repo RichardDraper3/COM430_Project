@@ -35,4 +35,5 @@ SFC Sturm’s awards include the Meritorious Service Medal, Joint Service Accomm
 
 SFC Sturm has three children: Jordyn-Lynn (14), Olivia (12), and Thomas (5). 
 
+<a href="mailto:alex.sturm@saintleo.edu.com">Contact SFC Sturm</a>
 ---
