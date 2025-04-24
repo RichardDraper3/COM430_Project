@@ -16,3 +16,5 @@ development. The program emphasizes critical thinking, problem-solving, and deci
 well-rounded leaders who are ready to take on the responsibilities of military service.
 
 [More info about the Program](https://www.goarmy.com/careers-and-jobs/find-your-path/army-officers/rotc)
+Contact our instructor at:
+<a href="mailto:daniel.you@saintleo.edu.com">Email Me</a>
